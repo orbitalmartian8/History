@@ -2,7 +2,7 @@
 ## The Beginning
 
 ### Authors Notes
-I have been interested in World War II, since I was a young boy.
+I have been interested in World War II, since I was a young boy. Specifically in the RAF; having a keen interest in aircraft as well. I have visited many a museuem and had a fasination in all of the stories behind the WW2 aircraft. Never having had a keen interest in history as a whole, I never did anything with it, just kept it in my head, kept these interests hidden, but now I can share them. And HOPEFULLY, you will enjoy reading this as much as I have writing it.
 
 ### _The Outbreak of War_
 #### _September 1939_
@@ -12,7 +12,7 @@ Even though this pact had been signed, Hitler wanted Poland all for Germany, so 
 
 ### Key People
 #### _Adolf Hitler_
-Adolf Hitler born on 20 April 1889 in Austria-Hungary, was a German politician who became the dictator of Germany from 1933 until his death in 1945. He rose to power as leader of the Nazi Party (he became chancellor in 1933 and then assume the title of Führer und Reichskanzler.
+Adolf Hitler born on 20 April 1889 in Austria-Hungary, was a German politician who became the dictator of Germany from 1933 until his death in 1945. He rose to power as leader of the Nazi Party (he became chancellor in 1933 and then assume the title of Führer und Reichskanzler. 
 
 
 
