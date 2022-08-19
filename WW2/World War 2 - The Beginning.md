@@ -20,5 +20,7 @@ Even though this pact had been signed, Hitler wanted Poland all for Germany, so 
 
 ## Acknowledgements
 Thanks to Matt (The Linux Cast) for giving me ideas of where to find information.
+
 Thanks to Wikipedia for giving the information in a compiled form from multiple sources (my sources will be available in the sources section).
+
 Thanks to Britannica for giving the information in a compiled form from multiple sources (my sources will be available in the sources section).
