@@ -8,7 +8,7 @@ World War II or the Second World War was an International conflict principally b
 #### September 1939
 In early 1939, Adolf Hitler (the German dictator) was resolute about invading and occupying Poland. Poland had an agreement with French and British military for support, were it to be attacked by German forces.
 
-At 12:40pm on 31^st August 1939, Hitler gave the order for hostilities against Poland to start at 4:45 the next morning.
+At 12:40pm on 31st August 1939, Hitler gave the order for hostilities against Poland to start at 4:45 the next morning.
 
 
 
