@@ -16,3 +16,5 @@ In early 1939, Adolf Hitler (the German dictator) was resolute about invading an
 
 
 ## Acknowledgements
+Thanks to Matt (The Linux Cast) for giving me ideas of where to find information.
+Thanks to Wikipedia for giving the information in a compiled form from multiple sources (my sources will be available in the sources section)
