@@ -13,7 +13,7 @@ Even though this pact had been signed, Hitler wanted Poland all for Germany, so 
 ### Key People
 #### _Adolf Hitler_
 Adolf Hitler born on 20 April 1889 in Austria-Hungary, was a German politician who became the dictator of Germany from 1933 until his death in 1945. He rose to power as leader of the Nazi Party (he became chancellor in 1933 and then assume the title of Führer und Reichskanzler. During his time as dictator, he initiated World War II and was central to the perpetration of the Holocaust, the genocide of about six million Jews and millions of other victims.
-Hitler lived in Vienna later in the first decade of teh 1900s and then moved to Germany in 1913. He became a decorated soldier during World War I. In 1919, he joined the German Worker's party, the predecesors to the Naxi Party (of which he was appointed leader in 1921. In 1923, he attempted to take governmental power in a failed attempt in Munich and was imprisoned with a sentence of five years.
+Hitler lived in Vienna later in the first decade of teh 1900s and then moved to Germany in 1913. He became a decorated soldier during World War I. In 1919, he joined the German Worker's party, the predecesors to the Naxi Party (of which he was appointed leader in 1921. In 1923, he attempted to take governmental power in a failed attempt in Munich and was imprisoned for five years. 
 
 
 
