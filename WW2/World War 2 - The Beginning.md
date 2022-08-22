@@ -3,7 +3,7 @@
 
 ### Table of Contents
  - [Authors Notes](#authors-notes)
- - [The Outbreak of War(#the-outbreak-of-war)
+ - [The Outbreak of War](#the-outbreak-of-war)
  - [Key People](#key-people)
    - [Adolf Hitler](#adolf-hitler)
    - [Winston Churchill](#winston-churchill)
