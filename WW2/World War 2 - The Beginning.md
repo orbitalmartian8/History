@@ -25,6 +25,8 @@ Adolf Hitler born on 20<sup>th</sup> April 1889 in Austria-Hungary, was a German
 Hitler lived in Vienna later in the first decade of teh 1900s and then moved to Germany in 1913. He became a decorated soldier during World War I. In 1919, he joined the German Worker's party, the predecesors to the Naxi Party (of which he was appointed leader in 1921. In 1923, he attempted to take governmental power in a failed attempt in Munich and was imprisoned for five years. Whilst in prison, he dictated the first volume of his autobiography and politial manifsto Mein Kampf (which is German for "My Struggle"). 
 
 #### _Winston Churchill_
+![image](Churchill.jpg))
+
 
 
 
