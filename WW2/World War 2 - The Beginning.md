@@ -7,6 +7,9 @@
  - [Key People](#key-people)
    - [Adolf Hitler](#adolf-hitler)
    - [Winston Churchill](#winston-churchill)
+ - [Acknowledgments](#acknowledgements)
+ - [Source](#sources)
+
 
 ### Authors Notes
 I have been interested in World War II, since I was a young boy. Specifically in the RAF; having a keen interest in aircraft as well. I have visited many a museuem and had a fasination in all of the stories behind the WW2 aircraft. Never having had a keen interest in history as a whole, I never did anything with it, just kept it in my head, kept these interests hidden, but now I can share them. And HOPEFULLY, you will enjoy reading this as much as I have writing it.
