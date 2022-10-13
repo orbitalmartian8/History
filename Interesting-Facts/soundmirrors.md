@@ -10,6 +10,6 @@ The Sound Mirrors worked by using their curver surface to concentrate sound wave
 
 ![image](https://romneymarshhistory.com/assets/fileman/Uploads/History/buildings/Sound%20Mirrors/Sound_MIrrors_2021_Gillson.jpg)
 <br>
-<sub>Sound Mirrors at Greatstone Lakes.</sub>
+<sup>Sound Mirrors at Greatstone Lakes.</sup>
 
 
