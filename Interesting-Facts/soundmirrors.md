@@ -9,5 +9,7 @@ There were three designs of the Sound Mirrors, 20ft, 30ft and 200ft. All three a
 The Sound Mirrors worked by using their curver surface to concentrate sound waves by capturing the noise of incoming aircraft approaching from the European mainland and focus it onto a microphone or a human listener equipped with then state-of-the-art stethoscopes.
 
 ![image](https://romneymarshhistory.com/assets/fileman/Uploads/History/buildings/Sound%20Mirrors/Sound_MIrrors_2021_Gillson.jpg)
+<br>
+<sub>Sound Mirrors at Greatstone Lakes.</sub>
 
-Sound Mirrors at Greatstone Lakes.
+
