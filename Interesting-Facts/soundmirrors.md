@@ -13,6 +13,7 @@ There were three designs of the Sound Mirrors, 20ft, 30ft and 200ft. All three a
 The Sound Mirrors worked by using their curver surface to concentrate sound waves by capturing the noise of incoming aircraft approaching from the European mainland and focus it onto a microphone or a human listener equipped with then state-of-the-art stethoscopes.
 
 ![image](https://romneymarshhistory.com/assets/fileman/Uploads/History/buildings/Sound%20Mirrors/Sound_MIrrors_2021_Gillson.jpg)
+<br>
 <sup>Sound Mirrors at Greatstone Lakes.</sup>
 
 #### Why?
@@ -23,7 +24,7 @@ They do this by being a giant curved surface.The sound waves reach the concrete 
 
 #### Why Are They Not Used Now?
 
-They started to become obsolete with the invention of faster aircraft and it became hard for operators to distinguish between aircraft and seagoing vessels. And with the invention of radar in 1932 it was never used in an active conflict situation.
+They started to become obsolete with the invention of faster aircraft and it became hard for operators to distinguish between aircraft and seagoing vessels. And with the invention of radar in 1932 it was never used in an active conflict situation.e
 
 
 
